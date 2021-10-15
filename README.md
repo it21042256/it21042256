@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @it21042256 Bienu Dewma 
+-I’m @it21042256 Bienu Dewma 
 
 
 <!---
